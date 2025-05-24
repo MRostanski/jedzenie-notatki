@@ -24,6 +24,8 @@
 1. Marchew w drobną kostkę
 1. Seler naciowy w drobną kostkę.
 1. Czosnek drobno posiekać.
+1. Mięso wrzuc na patelnie na trzech lyzkach oleju. Nie ruszaj ze dwie minuty.
+1. Obroc i znowu niech sie troche podpiecze ze dwie, trzy minuty.
 1. Mięso z patelni, na patelnię masło
 1. Marchew, seler i cebulę mieszamy na patelni i smażymy razem 3 minuty (do zmięknięcia)
 1. Dodajemy z powrotem mięso i rozdrabniamy i mieszamy.
